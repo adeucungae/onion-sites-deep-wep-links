@@ -1,6 +1,6 @@
 """"""""""""""""""""""""""DEEP WEB SİTELERİ"""""""""""""""""""""""
 
-![images](https://user-images.githubusercontent.com/104642584/166119946-16ebf5df-e0f3-4bb9-b422-e6e84c69224e.jpg)
+![images](https://user-images.githubusercontent.com/104642584/166119972-01776cdc-5d48-4527-910f-7feedca7970f.jpg)
 
 
 
