@@ -25,7 +25,7 @@ http://deepxljj2ik7yzpum23zd3gwyq5iryjnezsle7bsvcfovnhqyrk4vxid.onion/ (Türk fo
 
 ---------------------------------------------------------------------------------------------------------------------------------
 
-http://uvyybhmbvuhxjsaifaskznpll6h4jpaqmqaezfvjbwlmey7v6svzntid.onion/ (Alphabar,versus,torrez gibi adını her hafta değiştiren dolandırıcı/scam market kanmayın!!!!)
+http://uvyybhmbvuhxjsaifaskznpll6h4jpaqmqaezfvjbwlmey7v6svzntid.onion/ (Alphabay,versus,torrez gibi adını her hafta değiştiren dolandırıcı/scam market kanmayın!!!!)
 
 ---------------------------------------------------------------------------------------------------------------------------------
 
