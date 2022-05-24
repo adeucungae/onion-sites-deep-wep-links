@@ -17,7 +17,7 @@ http://protonmailrmez3lotccipshtkleegetolb73fuirgj7r4o4vfu7ozyd.onion/ (PROTON M
 
 ---------------------------------------------------------------------------------------------------------------------------------
 
-http://nrs6ds72646bfbclzi4byg4vaooemlh6falbixg6o4utmzirxz32eoad.onion/ (Türk forum fazla üye yok herşey serbest)
+http://rqy26og4lhfubin5dgw2vtofa6htdqm5fpeqwdk6qcjycbtdb77veyad.onion/ (Türk forum fazla üye yok herşey serbest)
 
 ---------------------------------------------------------------------------------------------------------------------------------
 
